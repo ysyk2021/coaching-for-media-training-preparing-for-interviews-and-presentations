@@ -1,5 +1,3 @@
-Developing Messaging for Social Media
-=====================================================================================
 
 In this chapter, we will explore advanced media training techniques for developing effective messaging on social media. We will discuss how to create messaging that resonates with your target audience, incorporates visual content, and uses relevant hashtags.
 

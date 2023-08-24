@@ -1,5 +1,3 @@
-Tips for Providing Effective Feedback and Guidance
-==================================================================================================
 
 In this chapter, we will explore techniques for coaching others for media training. We will discuss tips for providing effective feedback and guidance to help individuals effectively prepare for interviews and presentations.
 

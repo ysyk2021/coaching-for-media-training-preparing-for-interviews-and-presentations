@@ -1,5 +1,3 @@
-Chapter 7: Crisis Communications
-================================
 
 In today's fast-paced media environment, crises can happen at any time and have a major impact on your organization's reputation. In this chapter, we'll explore the basics of crisis communications and provide tips for developing a crisis communications plan and communicating effectively during a crisis.
 

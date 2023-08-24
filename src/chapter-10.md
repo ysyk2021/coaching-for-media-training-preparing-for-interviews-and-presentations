@@ -1,5 +1,3 @@
-Chapter 10: Advanced Media Training Techniques
-==============================================
 
 In this chapter, we will explore advanced media training techniques for businesses that require more specialized training. We will discuss developing messaging for social media, working with international media outlets, and handling sensitive or controversial topics.
 

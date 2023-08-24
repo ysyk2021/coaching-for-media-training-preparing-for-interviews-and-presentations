@@ -1,5 +1,3 @@
-Techniques for Delivering an Effective Presentation
-==============================================================================
 
 Delivering an effective presentation is a critical component of media training and presentations. In this chapter, we will focus on techniques for delivering an effective presentation.
 

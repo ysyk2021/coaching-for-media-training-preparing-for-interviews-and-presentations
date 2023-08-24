@@ -1,5 +1,3 @@
-Chapter 4: Interview Preparation
-================================
 
 Preparing for media interviews is crucial when it comes to delivering a successful and effective message. In this chapter, we'll explore techniques for interview preparation that can help you anticipate questions, stay on message, and deliver a memorable interview.
 

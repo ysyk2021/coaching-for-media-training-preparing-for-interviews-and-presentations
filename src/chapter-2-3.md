@@ -1,5 +1,3 @@
-How to Work Effectively with Journalists
-======================================================================================
 
 Working effectively with journalists is an essential component of media training. Building strong relationships with journalists can help you establish yourself as a reliable source of information and increase the likelihood of positive coverage. In this chapter, we will explore some strategies for working effectively with journalists.
 

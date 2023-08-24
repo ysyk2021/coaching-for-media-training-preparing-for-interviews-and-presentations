@@ -1,5 +1,3 @@
-Anticipating Questions and Preparing Answers
-===============================================================================
 
 Anticipating questions and preparing answers is an essential part of interview preparation for media training and presentations. In this chapter, we will focus on techniques for anticipating questions and preparing effective answers.
 

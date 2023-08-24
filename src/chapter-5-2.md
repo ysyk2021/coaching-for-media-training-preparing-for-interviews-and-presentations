@@ -1,5 +1,3 @@
-Techniques for Controlling Body Language and Tone of Voice
-==============================================================================================
 
 Effective communication isn't just about what you say - it's also about how you say it. Nonverbal cues such as body language and tone of voice can have a significant impact on how your message is received. By learning to control your nonverbal communication, you can improve your communication skills and become a more effective communicator.
 

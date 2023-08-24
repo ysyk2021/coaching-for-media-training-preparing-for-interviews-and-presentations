@@ -1,5 +1,3 @@
-Understanding the Basics of Crisis Communications
-===================================================================================
 
 In today's fast-paced, unpredictable media landscape, being prepared for a crisis is essential. Crisis communications is the practice of communicating effectively during times of crisis to protect an organization's reputation and minimize damage. In this chapter, we'll explore the basics of crisis communications and provide tips for creating an effective crisis communications plan.
 

@@ -1,5 +1,3 @@
-Strategies for Answering Difficult or Unexpected Questions
-===================================================================================================================
 
 Handling difficult questions and situations is an essential skill for successful media training and interviews. In this chapter, we will focus on strategies for answering difficult or unexpected questions.
 

@@ -1,5 +1,3 @@
-Techniques for Conducting Effective Practice Sessions
-===================================================================================================================
 
 Conducting effective mock interviews and practice sessions is essential for successful media training and presentations. In this chapter, we will focus on techniques for conducting effective practice sessions.
 

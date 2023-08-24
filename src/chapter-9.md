@@ -1,5 +1,3 @@
-Chapter 9: Conducting Mock Interviews and Practice Sessions
-===========================================================
 
 In this chapter, we will explore the benefits of conducting mock interviews and practice sessions. We will also discuss techniques for conducting effective practice sessions and how to use feedback to improve your performance.
 

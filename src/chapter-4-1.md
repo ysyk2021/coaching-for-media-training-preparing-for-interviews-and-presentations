@@ -1,5 +1,3 @@
-Researching the Interviewer and Media Outlet
-==============================================================================
 
 Effective interview preparation is key to success in media interviews. By researching the interviewer and media outlet beforehand, you can better understand their needs, interests, and values, and tailor your responses accordingly.
 

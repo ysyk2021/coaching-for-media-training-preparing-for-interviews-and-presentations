@@ -1,5 +1,3 @@
-Techniques for Communicating Effectively During a Crisis
-===========================================================================================
 
 Crisis communications is a critical component of media training and presentations. In this chapter, we will focus on techniques for communicating effectively during a crisis.
 

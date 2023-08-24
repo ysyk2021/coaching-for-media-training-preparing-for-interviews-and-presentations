@@ -1,5 +1,3 @@
-Chapter 6: Handling Difficult Questions and Situations
-======================================================
 
 Media interviews can be unpredictable, and it's important to be prepared for difficult questions and situations that may arise. In this chapter, we'll explore strategies and techniques for handling difficult questions and addressing potential concerns or red flags.
 

@@ -1,5 +1,3 @@
-Chapter 8: Presentations
-========================
 
 In this chapter, we will explore techniques for delivering an effective presentation. We will discuss how to use storytelling and visuals to engage the audience, and strategies for addressing audience questions and concerns.
 

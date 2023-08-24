@@ -1,5 +1,3 @@
-How to Use Feedback to Improve Your Performance
-============================================================================================================
 
 In this chapter, we will explore the importance of conducting mock interviews and practice sessions as part of your media training program. We will discuss how to use feedback to improve your performance and increase your confidence when communicating with the media.
 

@@ -1,5 +1,3 @@
-The Role of the Media in Shaping Public Opinion
-=============================================================================================
 
 The media landscape is vast and complex, with many different types of media outlets and audiences. As a spokesperson or public figure, it is important to understand the role of the media in shaping public opinion. In this chapter, we will explore the different types of media outlets and their audiences, as well as how the media influences public opinion.
 

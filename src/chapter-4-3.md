@@ -1,5 +1,3 @@
-Techniques for Staying on Message
-====================================================================
 
 Interview preparation is a critical component of effective media training and presentations. In this chapter, we will focus on techniques for staying on message during interviews.
 

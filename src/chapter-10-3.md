@@ -1,5 +1,3 @@
-Handling Sensitive or Controversial Topics
-==========================================================================================
 
 Media interviews can become particularly challenging when it comes to discussing sensitive or controversial topics. In this chapter, we'll explore advanced media training techniques for handling these difficult topics and ensuring that your message stays on track.
 

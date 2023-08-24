@@ -1,5 +1,3 @@
-Using Visual Aids Effectively
-==================================================================
 
 Nonverbal communication is a critical component of effective media training and presentations. In this chapter, we will focus on using visual aids effectively to enhance your nonverbal communication.
 

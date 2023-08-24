@@ -1,5 +1,3 @@
-Chapter 2: Understanding the Media Landscape
-============================================
 
 Understanding the media landscape is essential to successfully navigating media interviews and presentations. In this chapter, we'll explore different types of media outlets and their audiences, the role of the media in shaping public opinion, and how to work effectively with journalists.
 

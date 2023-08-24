@@ -1,5 +1,3 @@
-Identifying Key Messages and Talking Points
-=============================================================================
 
 Crafting a strong, effective message is key to successful media interviews and presentations. A strong message helps you convey your ideas clearly and articulate your goals succinctly. Identifying key messages and talking points is an important step in crafting an effective message.
 

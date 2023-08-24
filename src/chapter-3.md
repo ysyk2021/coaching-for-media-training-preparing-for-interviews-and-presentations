@@ -1,5 +1,3 @@
-Chapter 3: Crafting Your Message
-================================
 
 Crafting an effective message is essential to successfully communicating your ideas and achieving your goals in media interviews and presentations. In this chapter, we'll explore techniques for identifying key messages, tailoring them to different audiences, and creating a compelling narrative that engages the audience.
 

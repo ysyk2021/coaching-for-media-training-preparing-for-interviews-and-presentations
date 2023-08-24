@@ -1,5 +1,3 @@
-Techniques for Coaching Others on Media Training
-================================================================================================
 
 As a media coach, you have the opportunity to help others improve their media skills and become more effective communicators. In this chapter, we'll explore some techniques for coaching others on media training.
 

@@ -1,5 +1,3 @@
-Understanding the Impact of Nonverbal Cues in Interviews and Presentations
-==============================================================================================================
 
 Nonverbal communication is an important aspect of media interviews and presentations. Our body language, facial expressions, tone of voice, and other nonverbal cues can have a significant impact on how our message is received. In this chapter, we'll explore the importance of nonverbal communication and provide tips for using it effectively.
 

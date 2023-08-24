@@ -1,5 +1,3 @@
-Creating a Compelling Narrative
-=================================================================
 
 Crafting a compelling message is essential for effective communication in media interviews and presentations. By creating a clear, concise, and compelling narrative, you can capture your audience's attention, convey your key messages, and leave a lasting impression.
 

@@ -1,5 +1,3 @@
-Chapter 11: Coaching Others for Media Training
-==============================================
 
 In this chapter, we will explore techniques for coaching others on media training. We will also provide tips for providing effective feedback and guidance, and strategies for working with clients from different industries and backgrounds.
 

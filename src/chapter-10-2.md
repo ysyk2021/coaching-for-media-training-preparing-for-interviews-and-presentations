@@ -1,5 +1,3 @@
-Working with International Media Outlets
-========================================================================================
 
 Working with international media outlets presents unique challenges and opportunities for effective communication. In this chapter, we'll explore advanced media training techniques that can help you navigate international interviews and deliver a successful message to a global audience.
 

@@ -1,5 +1,3 @@
-Different Types of Media Outlets and Their Audiences
-==================================================================================================
 
 Understanding the media landscape is essential for effective media training. Different types of media outlets have different audiences and require different approaches. In this chapter, we will explore the different types of media outlets and their audiences.
 

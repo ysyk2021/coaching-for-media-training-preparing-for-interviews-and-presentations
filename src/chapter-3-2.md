@@ -1,5 +1,3 @@
-Techniques for Tailoring Your Message to Different Audiences
-==============================================================================================
 
 Crafting a strong, effective message is key to successful media interviews and presentations. However, it's also essential to tailor your message to your specific audience in order to ensure that it resonates and is well-received. By understanding your audience and their needs, you can craft a message that is engaging and persuasive.
 

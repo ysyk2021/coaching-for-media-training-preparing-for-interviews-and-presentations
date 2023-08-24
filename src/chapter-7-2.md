@@ -1,5 +1,3 @@
-Developing a Crisis Communications Plan
-=========================================================================
 
 In today's media landscape, a crisis can strike at any moment, and effective crisis communications planning is essential to ensure that your organization is prepared to respond effectively and minimize damage. By developing a comprehensive crisis communications plan, you can better manage crises, build trust and credibility among stakeholders, and protect your organization's reputation.
 

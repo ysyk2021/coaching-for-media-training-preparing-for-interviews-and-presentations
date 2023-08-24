@@ -1,5 +1,3 @@
-Strategies for Working with Clients from Different Industries and Backgrounds
-=============================================================================================================================
 
 Coaching others for media training requires a flexible and adaptive approach to accommodate clients from different industries and backgrounds. In this chapter, we'll explore strategies for working with clients from different industries and backgrounds, including their unique needs, challenges, and communication styles.
 

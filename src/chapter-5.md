@@ -1,5 +1,3 @@
-Chapter 5: Nonverbal Communication
-==================================
 
 In this chapter, we will explore the impact of nonverbal cues in interviews and presentations. We will discuss techniques for controlling body language and tone of voice, as well as how to use visual aids effectively.
 

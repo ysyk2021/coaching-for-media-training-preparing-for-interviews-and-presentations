@@ -1,5 +1,3 @@
-Overview of the Book's Contents
-========================================================
 
 Media interviews and public presentations can be daunting, but with the right preparation and training, you can confidently convey your message and capture your audience's attention. Coaching for Media Training: Preparing for Interviews and Presentations is designed to provide you with practical strategies and techniques to help you succeed in media interviews and presentations.
 
