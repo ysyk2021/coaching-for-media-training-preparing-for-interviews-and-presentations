@@ -45,3 +45,4 @@
   - [Strategies for working with clients from different industries and backgrounds](chapter-11-3.md)
 - [Conclusion](conclusion.md)
 - [Contacts](contacts.md)
+- [Our Other Books](other-books.md)
